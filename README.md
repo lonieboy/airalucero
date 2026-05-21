@@ -1,7 +1,7 @@
 # airalucero
 ## my favorite food
 - *shrimp*
-- *ribes adobo*
+- *ribs adobo*
 - *fries*
 - *chicken wings*
 - *burger*
